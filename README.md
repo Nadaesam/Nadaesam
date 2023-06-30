@@ -4,8 +4,6 @@
 - 👨‍💻 All of my projects are available at [https://github.com/Nadaesam](https://github.com/Nadaesam)
 
 - 📫 How to reach me **enada746@gmail.com**
-
-- ⚡ Fun fact **I love nature**
  
 - 🤓 Always learning new things
 
